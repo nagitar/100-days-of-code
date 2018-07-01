@@ -5,5 +5,5 @@
 **Request:** I request you all to poke me and make me accountable if I fail to update on a single day.
 
 ### **Link to my Facebook :** [Fb](http://www.example.com)
-### **Link to my Twitter :** [Fb](http://www.example.com)
-### **Link to my LinkedIn :** [Fb](http://www.example.com)
+### **Link to my Twitter :** [Twitter](http://www.example.com)
+### **Link to my LinkedIn :** [LinkedIn](http://www.example.com)
