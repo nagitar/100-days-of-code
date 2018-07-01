@@ -4,6 +4,5 @@
 
 **Request:** I request you all to poke me and make me accountable if I fail to update on a single day.
 
-### **Link to my Facebook :** [Fb](https://www.facebook.com/nagita6244)
 ### **Link to my Twitter :** [Twitter](https://twitter.com/sneha123rathore)
 ### **Link to my LinkedIn :** [LinkedIn](https://www.linkedin.com/in/nagitakumari2674/)
